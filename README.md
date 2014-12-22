@@ -34,7 +34,7 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-SONGES AND SONETTES, written by the right honorable Lorde Henry Haward late Earle of Surrey, and oth
+
 1. To the reder.
 
 #####Body#####
